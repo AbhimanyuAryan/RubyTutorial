@@ -9,7 +9,7 @@ I am active on [*Twitter*](https://www.twitter.com/iAbhimanyuAryan). Follow me a
 
 For those who don't use Twitter. Contact me on [*Facebook*](https://www.facebook.com/iAbhimanyuAryan) or [*GooglePlus*](https://plus.google.com/+AbhimanyuAryan)
 
-![alt tag](http://imgur.com/QAuPYrr)
+![alt tag](https://pbs.twimg.com/media/CXnv2e2UAAAMbAp.jpg)
 
 Enjoy. Happy coding!!!
 
